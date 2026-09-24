@@ -1,1 +1,1 @@
-# lug-s-50-days
+# lug'at-50-days
